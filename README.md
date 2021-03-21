@@ -13,5 +13,4 @@ I'm passionate about solving problems and learning. Always open to new challenge
 
 Reach me out 👇🏼
 
-[![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-blue?style=flat-
-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/patricia-castagna-b3717272/)
+ [![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/patricia-castagna-b3717272/)](https://www.linkedin.com/in/patricia-castagna-b3717272/)
