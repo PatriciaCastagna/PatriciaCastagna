@@ -10,7 +10,7 @@ I'm passionate about solving problems and learning. Always open to new challenge
 
 - 📍 From Brazil living in Portugal
 
-- 💻 I studied of Technological Specialization of Technology and Programming Information Systems for seven months (https://www.iefp.pt/);
+- 💻 I studied of Technological Specialization of Technology and Programming Information Systems at the job center (https://www.iefp.pt/);
 
 Reach me out 👇🏼
 
