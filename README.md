@@ -8,7 +8,7 @@ I'm passionate about solving problems and learning. Always open to new challenge
 
 ### 🌍 " Eu não tenho sonhos, tenho metas e objetivos " 🧠
 
-- 📍 From Brazil living in Portugal
+- 📍 From Brazil living in France
 
 - 💻 I studied of Technological Specialization of Technology and Programming Information Systems at the job center (https://www.iefp.pt/);
 - Currently, I study at Instituto Master Trainning de Educação Profissional (https://www.institutomastertrainning.com.br/);
