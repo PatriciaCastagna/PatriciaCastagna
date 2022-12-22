@@ -2,7 +2,9 @@
 
 My name is Patricia Castagna 👩🏼‍BR
 
-I'm A Student of Technological Specialization of Technology and Programming Information Systems since 2020.  💻
+I was Student of Technological Specialization of Technology and Programming Information Systems in 2020.  💻
+
+I keep looking for knowledge!
 
 I'm passionate about solving problems and learning. Always open to new challenges and ready to face changes.
 
