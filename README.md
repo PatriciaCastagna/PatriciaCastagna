@@ -16,7 +16,7 @@ I'm passionate about solving problems and learning. Always open to new challenge
 - I studied at Instituto Master Trainning de Educação Profissional (https://www.institutomastertrainning.com.br/);
 - I participate in a volunteer project as a developer Full-Stack in the company Qa Coders (https://www.qacoders.com.br/);
 - I worked at Company Dione (https://www.linkedin.com/company/dionesolutions/mycompany/);
-- Currently doing graduation at Uniamérica and participating in a volunteer project at the company "Pipoca Agil";
+- Currently doing graduation at Uniamérica and participating in a volunteer project at the company "Pipoca Agil" (https://www.pipocaagil.com.br/);
 
 Reach me out 👇🏼
 
