@@ -13,10 +13,10 @@ I'm passionate about solving problems and learning. Always open to new challenge
 - 📍 From Brazil living in France
 
 - 💻 I studied of Technological Specialization of Technology and Programming Information Systems at the job center (https://www.iefp.pt/);
-- I studied at Instituto Master Trainning de Educação Profissional (https://www.institutomastertrainning.com.br/);
-- I participate in a volunteer project as a developer Full-Stack in the company Qa Coders (https://www.qacoders.com.br/);
+- I studied at Instituto Master Trainning de Educação Profissional (https://www.institutomastertrainning.com.br/) and completed a seven-month internship.
+- I participate in a volunteer project as a developer Full-Stack in the company Qa Coders (https://www.qacoders.com.br/) and at the company "Pipoca Agil" (https://www.pipocaagil.com.br/);
 - I worked at Company Dione (https://www.linkedin.com/company/dionesolutions/mycompany/);
-- Currently doing graduation at Uniamérica and participating in a volunteer project at the company "Pipoca Agil" (https://www.pipocaagil.com.br/);
+- Currently doing graduation at Uniamérica;
 
 Reach me out 👇🏼
 
